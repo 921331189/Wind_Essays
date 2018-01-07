@@ -14,9 +14,15 @@
 
 不知不觉中，有一股力量炽热了起来。
 
-不知不觉中，我跑了起来。
+不知不觉中，我跑了起来。![](/assets/church-2464899_1280.jpg)
 
----
+![](/assets/church-2464899_1280.jpg)
+
+![](/assets/church-2464899_1280.jpg)
+
+![](/assets/church-2464899_1280.jpg)
+
+![](/assets/church-2464899_1280.jpg)
 
 ![](/assets/church-2464899_1280.jpg)
 
