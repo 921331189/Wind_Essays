@@ -4,7 +4,7 @@
 
 [端木七曲的回答](https://www.gitbook.com/book/921331189/wind_essays/edit#) / [端木七曲的收藏](https://www.zhihu.com/people/duan-mu-qi-qu/collections)
 
-
+＞＞＞
 
 * [是什么动力或想法让你把一件事情坚持下来？](https://www.gitbook.com/book/921331189/wind_essays/edit#)【谁终将声震人间，必长久深自缄默；谁终将点燃闪电，必长久如云漂泊。】
 * [哪些思维方式是你刻意训练过的？](https://www.gitbook.com/book/921331189/wind_essays/edit#)【反脆弱，执行意图，游戏化，刻意练习，自我超越】
