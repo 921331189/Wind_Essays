@@ -2,6 +2,8 @@
 
 关注，寻找，发掘宇宙中闪耀的思想宝石。
 
+脱离日常观念的地心引力，飞向太空，宇宙无限！To infinity and beyond！用全新的视角看世界。
+
 ### 2016
 
 1. [人生范式 \| 创造自己的身份](http://mp.weixin.qq.com/s?__biz=MzIyNzUyODI4Nw==&mid=2247483658&idx=1&sn=e14be31de50c2d4b6e61163af9a3a2a4&scene=18#wechat_redirect)
