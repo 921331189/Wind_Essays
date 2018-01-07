@@ -1,17 +1,23 @@
-### 新年
+# windじ☆ve风之源 {#top_head_title}
+
+我在捕获意义呐，我的朋友！
+
+---
+
+#### 新星
 
 * [意义矿石：2016我作为一个采矿者](http://user.qzone.qq.com/609606194/blog/1483369010)
 * [彗星归来，群星闪耀](https://www.gitbook.com/book/921331189/wind_essays/edit#)
 * [2015是一颗彗星](http://user.qzone.qq.com/609606194/blog/1420115276)
 * [公元纪年二零一四](http://user.qzone.qq.com/609606194/blog/1388508355)
 
-### 青年纪元
+#### 青年纪元
 
 * [青年在进入大学最后一年时的考虑](http://user.qzone.qq.com/609606194/blog/1474992750)
 * [青年二十](http://user.qzone.qq.com/609606194/blog/1441332543)
 * [青年在进入大学一年后的考虑](http://user.qzone.qq.com/609606194/blog/1412575103)
 
-### 侠之大者，游历万年
+#### 侠之大者，游历万年
 
 * [新加坡之旅：短暂的三日夏天](http://user.qzone.qq.com/609606194/blog/1479659270)
 * [与时同期](https://www.gitbook.com/book/921331189/wind_essays/edit#)
@@ -40,28 +46,11 @@
 * [我有我的心潮澎湃](http://user.qzone.qq.com/609606194/blog/1400493268)
 * [十日谈](http://user.qzone.qq.com/609606194/blog/1385041600)
 
-### 成长の里程
+#### 小说
 
-* [自述](https://www.gitbook.com/book/921331189/wind_essays/edit#)
-* [天下第一篇](https://www.gitbook.com/book/921331189/wind_essays/edit#)
-
-### 小说
-
-* [一封信](http://user.qzone.qq.com/609606194/blog/1465231514)
-* [红色的星空](http://user.qzone.qq.com/609606194/blog/1450105371)
 * [第一封情书](http://user.qzone.qq.com/609606194/blog/1437821027)
-* [世界暗了千分之一秒](http://user.qzone.qq.com/609606194/blog/1434538732)
+
 * [二十年后的回忆录\[第二年的三月\]](http://user.qzone.qq.com/609606194/blog/1394773963)
-
-### 诗歌
-
-* [拾起我春天的七首诗](http://user.qzone.qq.com/609606194/blog/1461597669)
-* [风中的藤蔓](http://user.qzone.qq.com/609606194/blog/1437568633)
-* [吹舞](http://user.qzone.qq.com/609606194/blog/1433942027)
-* [喜剧之王](http://user.qzone.qq.com/609606194/blog/1418485371)
-* [一个叙述者的无法沉默](http://user.qzone.qq.com/609606194/blog/1396624461)
-* [星空降临](http://user.qzone.qq.com/609606194/blog/1395768188)
-* [她们说我不懂哀愁](http://user.qzone.qq.com/609606194/blog/1394013563)
 
 
 
