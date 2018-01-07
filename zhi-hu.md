@@ -12,6 +12,8 @@
 * [怎样拥有跳脱的想象力？](https://www.gitbook.com/book/921331189/wind_essays/edit#)【大学の第二周目】
 * [父母对孩子的三观形成起到多大影响？](https://www.zhihu.com/question/35083230/answer/213540416)【我们试试！】
 
+![](/assets/v2-54d864ff00041439496b6e13d8c48957_r.jpg)
+
 ---
 
 # 知乎 // 隼风
