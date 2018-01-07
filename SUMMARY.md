@@ -5,5 +5,4 @@
 * [宇宙西边](yu-zhou-xi-bian.md)
 * [知乎 // 端木七曲](zhi-hu.md)
 * [风吹拂过江南](feng-chui-fu-guo-jiang-nan.md)
-* [神秘组织](shen-mi-zu-zhi.md)
 

@@ -1,10 +1,9 @@
 # 宇宙西边
 
-关注，寻找，发掘宇宙中闪耀的思想宝石。
+1. > 关注，寻找，发掘宇宙中闪耀的思想宝石。
+   > 脱离日常观念的地心引力，飞向太空，宇宙无限！To infinity and beyond！用全新的视角看世界。
 
-脱离日常观念的地心引力，飞向太空，宇宙无限！To infinity and beyond！用全新的视角看世界。
-
-### 2016
+#### 2016
 
 1. [人生范式 \| 创造自己的身份](http://mp.weixin.qq.com/s?__biz=MzIyNzUyODI4Nw==&mid=2247483658&idx=1&sn=e14be31de50c2d4b6e61163af9a3a2a4&scene=18#wechat_redirect)
 
@@ -20,7 +19,7 @@
 
 7. [观念游戏03 \| 培养生机：多彩的积极反馈流](http://mp.weixin.qq.com/s?__biz=MzIyNzUyODI4Nw==&mid=2247483676&idx=1&sn=0511ee854ce72207552356f61fee505c&chksm=e85e9a2cdf29133a3849995c8750fd9cc9fc6f4735acea6e43babea813ef6e18f86e9513d47e&scene=18#wechat_redirect)
 
-### 2017
+#### 2017
 
 1. [在混沌中嬉戏 \| 人类的作用和我们的新生活方式](http://mp.weixin.qq.com/s?__biz=MzIyNzUyODI4Nw==&mid=2247483679&idx=1&sn=61516e2b37ebe224c4c7f3845590b7ab&chksm=e85e9a2fdf2913395ded14429d9748c0e2fe88f4439a380da31f3093f85b2bb51c2acb944af0&mpshare=1&scene=24&srcid=0107PRnbMmV7wzLu3r2t1TPC#rd)
 
