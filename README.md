@@ -1,4 +1,4 @@
-# Wind\_Essays
+# Mr Wind の文
 
 积极能量箱1：榜样的力量！
 
