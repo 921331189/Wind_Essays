@@ -7,7 +7,8 @@
 #### 新星
 
 * [意义矿石：2016我作为一个采矿者](http://user.qzone.qq.com/609606194/blog/1483369010)
-* [彗星归来，群星闪耀](https://www.gitbook.com/book/921331189/wind_essays/edit#)
+* [彗星归来，群星闪耀](http://user.qzone.qq.com/609606194/blog/1451663961)
+
 * [2015是一颗彗星](http://user.qzone.qq.com/609606194/blog/1420115276)
 * [公元纪年二零一四](http://user.qzone.qq.com/609606194/blog/1388508355)
 
@@ -20,22 +21,24 @@
 #### 侠之大者，游历万年
 
 * [新加坡之旅：短暂的三日夏天](http://user.qzone.qq.com/609606194/blog/1479659270)
-* [与时同期](https://www.gitbook.com/book/921331189/wind_essays/edit#)
+* [与时同期](http://user.qzone.qq.com/609606194/blog/1406971620)
+
 * [上海自由行的三十六个镜头](http://user.qzone.qq.com/609606194/blog/1375094701)
 
 ### 强烈の努力
 
 * [战格](http://user.qzone.qq.com/609606194/blog/1449850732)
 * [风的新相](http://user.qzone.qq.com/609606194/blog/1448167810)
-* [安逸的，太安逸的！](https://www.gitbook.com/book/921331189/wind_essays/edit#)
+* [安逸的，太安逸的！](http://user.qzone.qq.com/609606194/blog/1433552787)
 
 ### 闪亮の生活尝试
 
 * [可以是浪漫](http://user.qzone.qq.com/609606194/blog/1469323339)
 * [小森](http://user.qzone.qq.com/609606194/blog/1438953271)
 * [生活艺术家](http://user.qzone.qq.com/609606194/blog/1433603669)
-* [认真的尝试，并以此说明课程论文的无限可能性](https://www.gitbook.com/book/921331189/wind_essays/edit#)
-* [我给我的每一周都取了一个名字——本固枝繁、星辰浩瀚](https://www.gitbook.com/book/921331189/wind_essays/edit#)
+* [认真的尝试，并以此说明课程论文的无限可能性。](http://user.qzone.qq.com/609606194/blog/1418868391)
+
+* [我给我的每一周都取了一个名字——本固枝繁、星辰浩瀚](http://user.qzone.qq.com/609606194/blog/1417449381)
 
 ### 大学の思考
 
@@ -52,11 +55,5 @@
 
 * [二十年后的回忆录\[第二年的三月\]](http://user.qzone.qq.com/609606194/blog/1394773963)
 
-
-
-
-
 ![](/assets/豪神壁纸 科幻1.jpg)
-
-
 
